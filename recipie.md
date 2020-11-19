@@ -1,0 +1,1 @@
+pour some milk in th pan and heat it after 2 minutes put some cocoa in it than stir it well ther put some sugar in it and stir well till 5 minutes after it pour the whole syrup in one bowl and keep it in  refrigerator for 1 hour after 1 hour when u will take out it it will taste like chocolate
